@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @OksanaOksanich
+- 👀 I’m interested in programming in general
+- 🌱 I’m currently learning web development
+- 📫 How to reach me  telegram  cocossococ
